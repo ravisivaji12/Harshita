@@ -1,1 +1,1 @@
-# Harshita
+# Harshita Kochhar
